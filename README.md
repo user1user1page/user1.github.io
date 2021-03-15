@@ -1,1 +1,1 @@
-# user1user1.github.io
+# user1.github.io
